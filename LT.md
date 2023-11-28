@@ -1,5 +1,9 @@
 【LINE TAXI】
-
+kipling
+520
+gmail.com
+oy
+134
 ➊補班日專屬好禮~2/5 23:59
 乘車券15元 x 2張
 https://iiil.io/lRsK
